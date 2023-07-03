@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jaypi10
-- 👀 I’m interested in E-sports, and Sports in general. 
+- 👀 I’m interested in E-sports, and Sports in general. And in UX area. 
 - 🌱 I’m currently learning HTML/Javascript, but im wanna learn JAVA.
 - 💞️ I’m looking to collaborate on every code i could.
 - 📫 How to reach me just send me a propose at my code Instagram. 
